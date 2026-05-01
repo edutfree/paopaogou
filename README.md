@@ -10,7 +10,13 @@
 
 ## 泡泡狗加速优惠码
 
-暂无，不定期更新。
+不定期更新。五一活动惠来啦！
+
+季付10%：[1190](https://0630.ppg02-mqelltoq.top/#/register?code=Jczkkn8q)
+
+年25%：[1175](https://0630.ppg02-mqelltoq.top/#/register?code=Jczkkn8q)
+
+半年15%：[1185](https://0630.ppg02-mqelltoq.top/#/register?code=Jczkkn8q)
 
 ## 泡泡狗套餐价格
 
